@@ -7,5 +7,6 @@
 - How to reach me: send me an email.
 
 
-![tumblr_c02b99fcbbf54008c60014c30cecc016_f80967e1_2048](https://github.com/izanrgg/izanrgg/assets/134888658/76c8218b-b3e9-4e7b-a78c-300c6b52646f)
+![tumblr_e089135a01a87ae5a7d8de7a3c92c567_cb24c924_1280](https://github.com/izanrgg/izanrgg/assets/134888658/791c1530-9772-4339-8dc3-94a852d4e561)
+
 
